@@ -39,6 +39,17 @@ Plate for your burger
 
 ## Steps for preparation:
 
+Pre-heat grill. Place a grill-safe pan on one side of the grill. 
+
+While the grill is heating up, prep burger toppings. Separate lettuce leaves into bun-sized pieces, thickly slice tomatoes, and dice the onion. 
+
+Add your chopped onions to the grill pan mixing in some cooking oil as needed. Cook until softened and translucent, mixing frequently to avoid burning. Once these are cooked, remove from the grill. 
+
+Next, grill the Beyond Burger patties for about 4 minutes on each side. At the last minute add a slice of plant-based cheddar cheese, and cover. 
+
+Build your burger - place a cooked Beyond Burger on a bed of lettuce, top with a second Beyond Burger, grilled onions, two tomato slices, plant-based special sauce, and more lettuce. 
+
+Enjoy!
 
 
 ### Notes:
